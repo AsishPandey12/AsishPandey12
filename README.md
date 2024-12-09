@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **asishpandey9163@gmail.com**
 
-- ⚡ Fun fact **I only create bugs🪲.**
+- ⚡ Fun fact **Fear of bugs🪲.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
